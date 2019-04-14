@@ -1,1 +1,0 @@
-Mene muihin oksiin.
